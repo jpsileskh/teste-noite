@@ -1,2 +1,3 @@
-# teste-noite
-Repositório de teste
+eu nome é Leonardo Iwata, nasci no dia 13 de janeiro de 2002 e desde pequeno sempre fui muito curioso sobre como as coisas funcionam, especialmente quando o assunto é eletrônica. Natural de São Bernardo do campo, essa paixão me levou a me especializar na área técnica e, atualmente, sou **técnico eletrônico**.
+
+Minha jornada começou com o interesse por circuitos e dispositivos eletrônicos, o que me motivou a buscar uma formação técnica na área. Hoje, além de atuar como técnico, também estou me aprofundando no campo de **Desenvolvimento de Sistemas (DS)**, um campo que complementa minha experiência em eletrônica e me permite explorar soluções mais inovadoras e tecnológicas.
