@@ -14,5 +14,5 @@ Meu objetivo é me tornar um profissional qualificado e atualizado, capaz de atu
 Sou muito fã de música
 
 > Foo Fighters em 2023
-> 
+
 > Bring Me The Horizon e The Weeknd ao vivasso em 2024
