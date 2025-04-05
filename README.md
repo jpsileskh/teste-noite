@@ -1,6 +1,3 @@
-﻿
-  
-  
 
 # VAI CORINTHIANS 🦅🦅🦅!!!!!
 
@@ -13,7 +10,7 @@
 ![Maior Campeão Paulista](https://a.espncdn.com/combiner/i?img=/i/teamlogos/soccer/500/874.png)
 
 
-## vampeta
+## Vampeta
 ![vampetassoOOOOO](https://medias.revistaoeste.com/wp-content/uploads/2025/02/vampeta-tvpop-672x370.jpg)
   
 
@@ -71,3 +68,5 @@ Dos desportistas do Brasil
   
 
 [link da letra do hino](https://www.letras.mus.br/corinthians/1539059/)
+## Superbike
+![insira a descrição da imagem aqui]( https://www.honda.com.br/motos/sites/hda/files/2023-04/eric-granado-competindo-no-wsbk.webp )
