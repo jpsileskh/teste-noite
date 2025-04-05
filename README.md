@@ -14,7 +14,7 @@
 
 
 ## vampeta
-![vampetasso](https://medias.revistaoeste.com/wp-content/uploads/2025/02/vampeta-tvpop-672x370.jpg)
+![vampetassoOOOOO](https://medias.revistaoeste.com/wp-content/uploads/2025/02/vampeta-tvpop-672x370.jpg)
   
 
 ***Maior Campeão Paulista 🥳🥳🥳🥳🥳***
